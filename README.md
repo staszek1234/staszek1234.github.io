@@ -3,7 +3,7 @@
 
 **memy fajne**
 
-lol/
+lol
 
 nazywam się staszek
 

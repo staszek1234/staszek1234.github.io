@@ -1,10 +1,10 @@
 # staszek1234.github.io
-**staszek1234**
+**staszek1234**/
 
-**memy fajne**
+**memy fajne**/
 
-lol
+lol/
 
-nazywam się staszek
+nazywam się staszek/
 
-**tutaj będą memy i tyle**
+**tutaj będą memy i tyle**/
